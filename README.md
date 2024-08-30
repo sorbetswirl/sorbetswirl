@@ -14,7 +14,7 @@
 soph(ia)  　　;　　15ㅤ　 ಿ᱖　ㅤthey / all
 </p>
 
-[pt rentry](https://rentry.co/fries)　..　[main rentry](https://rentry.co/soph) ⠀&͟&͟⠀ [pronouns.page](https://en.pronouns.page/@qiaoling)
+[pt rentry](https://rentry.co/fries)　..　[main rentry](https://rentry.co/soph) ⠀&͟&͟⠀ [atabook](https://yoojoonghyuk.atabook.org/)
 </p>
 
 <p align="center"
