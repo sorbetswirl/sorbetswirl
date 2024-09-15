@@ -13,7 +13,7 @@
 
 </p>
 
-[<img src="https://file.garden/ZgwdTG-uajjHAH58/rentry" />](https://rentry.co/fries)⠀⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/ata" />](https://yoojoonghyuk.atabook.org/)  ⠀[<img src="https://file.garden/ZgwdTG-uajjHAH58/carrd" />](https://littlemushroom.carrd.co/) [<img src="https://file.garden/ZgwdTG-uajjHAH58/lvmail" />](https://rentry.co/hickeys)
+[<img src="https://file.garden/ZgwdTG-uajjHAH58/rentry" />](https://rentry.co/fries)⠀⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/ata" />](https://yoojoonghyuk.atabook.org/)  ⠀[<img src="https://file.garden/ZgwdTG-uajjHAH58/carrd" />](https://littlemushroom.carrd.co/)  ⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/lvmail" />](https://rentry.co/hickeys)
 </p>
 
 <img src="https://file.garden/ZgwdTG-uajjHAH58/drugi">
