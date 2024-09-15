@@ -1,20 +1,21 @@
 <div id="header" align="center">
   
-<img src="[https://64.media.tumblr.com/d2686b537da6e540ea81697087c92308/9daddf923761f6ec-14/s500x750/da5535c09aa2b17e89e908ec92f0e1eb179da958.gifv](https://files.catbox.moe/etpjsw.gif)"> 
+<img src="https://file.garden/ZgwdTG-uajjHAH58/div"> 
 
 <p align="center"
 
 <p align="center">
-<img src="https://files.catbox.moe/uzabc0.png" />
+<img src="https://file.garden/ZgwdTG-uajjHAH58/rolnikcz" />
 </p>
 
 <div id="header" align="center">
 
 
-soph(ia)  　　;　　15ㅤ　 ಿ᱖　ㅤthey / all
 </p>
 
-[pt rentry](https://rentry.co/fries)　..　[main rentry](https://rentry.co/soph) ⠀&͟&͟⠀ [atabook](https://yoojoonghyuk.atabook.org/)
+[<img src="https://file.garden/ZgwdTG-uajjHAH58/rentry" />](https://rentry.co/fries)⠀⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/ata" />](https://yoojoonghyuk.atabook.org/)  ⠀[<img src="https://file.garden/ZgwdTG-uajjHAH58/carrd" />](https://littlemushroom.carrd.co/) 
 </p>
+
+<img src="https://file.garden/ZgwdTG-uajjHAH58/drugi">
 
 <p align="center"
