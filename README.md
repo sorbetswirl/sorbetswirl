@@ -10,7 +10,7 @@
 
 <div id="header" align="center">
 
-𝗂 𝗅𝗈𝗏𝖾 𝗆𝗒 𝗀𝖿 < @evilrussian 𝟥
+𝗂 𝗅𝗈𝗏𝖾 𝗆𝗒 𝗀𝖿 < 𝟥
 </p>
 
 [<img src="https://file.garden/ZgwdTG-uajjHAH58/rentry" />](https://rentry.co/fries)⠀⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/ata" />](https://yoojoonghyuk.atabook.org/)  ⠀[<img src="https://file.garden/ZgwdTG-uajjHAH58/carrd" />](https://littlemushroom.carrd.co/)  ⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/lvmail" />](https://rentry.co/hickeys)
