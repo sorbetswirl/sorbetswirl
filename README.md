@@ -1,21 +1,25 @@
 <div id="header" align="center">
   
-<img src="https://file.garden/ZgwdTG-uajjHAH58/div"> 
+<img src="https://files.catbox.moe/rtnr6n.png"> 
 
 <p align="center"
 
 <p align="center">
-<img src="https://file.garden/ZgwdTG-uajjHAH58/rolnikcz" />
+<img src="https://files.catbox.moe/flppct.png"> 
+
+
+<p align="center">
+<img src="https://files.catbox.moe/sq0rf1.png" />
 </p>
 
 <div id="header" align="center">
 
-remaking, got ml to match my comfs with me!
+<img src="https://files.catbox.moe/hsihy6.png" />
 </p>
 
-[<img src="https://file.garden/ZgwdTG-uajjHAH58/rentry" />](https://rentry.co/fries)⠀⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/ata" />](https://yoojoonghyuk.atabook.org/)  ⠀[<img src="https://file.garden/ZgwdTG-uajjHAH58/carrd" />](https://sorbetswirll.carrd.co/#)  ⠀ [<img src="https://file.garden/ZgwdTG-uajjHAH58/lvmail" />](https://rentry.co/aug3)
+[<img src="https://files.catbox.moe/lqd6ti.png" />](https://rentry.co/seolhyvk)⠀⠀ [<img src="https://files.catbox.moe/7qgw72.png" />](https://yoojoonghyuk.atabook.org/)
 </p>
 
-<img src="https://file.garden/ZgwdTG-uajjHAH58/drugi">
+<img src="https://files.catbox.moe/r3ouay.png">
 
 <p align="center"
